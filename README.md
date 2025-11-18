@@ -10,7 +10,7 @@
 
 ###
 
-<h4 align="left">BlueArchive/StellaSora<br>Minecraft Mod/Script Coder(?)<br>Fishe🐟<br>ChatGPT God</h4>
+<h4 align="left">🇺🇸/🇯🇵<br>BlueArchive/StellaSora<br>Code/Bot Dev Beginner<br>Fishe🐟 Yes.</h4>
 
 ###
 
